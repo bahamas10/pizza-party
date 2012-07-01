@@ -15,3 +15,5 @@ Brick oven pizza, lots of herbs and grease, very thin, blackened edge crispy cru
 
 ##### New York Pizza
 
+Gigantic slices that are covered in grease and are delicious.  One slice is really 2, and is enough to fill you up.
+
