@@ -52,3 +52,17 @@ Same plaza as Oregano's, next door. We don't remember it very well..
 Great pizza with excellent sauce. A little small.
 
 [Uncle Vito's Menu](http://unclevitos.com/menu.html)
+
+
+
+Buffalo
+-----------
+
+Pizza Plant
+
+Pods. The greatest relative of the calzone ever to grace the planet. Restaurant god-tier. We could eat here every day.
+
+
+La Bella Sicilia
+
+Everything here is amazing. Pizza doesn't look like it will taste good bet it's incredible. All the pastas are basically the same, and awesome- shells, manicotti, ravioli, etc. all with lots of sauce and melted cheese on top.
