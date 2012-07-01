@@ -32,3 +32,9 @@ Woodfired pizza.  Don't trust the margharita name, just ask for cheese pizza.  T
 
 Almost no sauce, really flour-y dough. Small personal pizzas and slices
 
+
+##### Uncle Vito's
+
+Great pizza with excellent sauce. A little small.
+
+[Uncle Vito's Menu](http://unclevitos.com/menu.html)
