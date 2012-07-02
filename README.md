@@ -12,6 +12,8 @@ California
 
 Amazing cheese ravioli, small square shape. Their sauce has a weird aftertaste to it, but they sell frozen ravioli you can make at home and use your own sauce. Prego Traditional, Heart Smart Traditional, or Light Smart Traditional sauce is the best now that Healthy Choice is discontinued.
 
+<img src="http://pizzaparty.skyeillustration.com/raviolihouse.jpg" height="100" />
+
 
 
 ##### New York Pizza
@@ -24,7 +26,7 @@ Gigantic slices that are covered in grease and are delicious. One slice is reall
 
 Brick oven pizza, lots of herbs and grease, very thin, blackened edge crispy crust. It's the closest to Flatbread that we've found, but expensive and the sauce is a minefield.
 
-<img src="http://pizzaparty.skyeillustration.com/amicis.jpg" width="100" />
+<img src="http://pizzaparty.skyeillustration.com/amicis.jpg" height="100" />
 
 
 
@@ -41,6 +43,8 @@ Woodfired pizza. Don't trust the margharita name, just ask for cheese pizza. The
 Great pizza with excellent sauce, completely smooth, no chunks at all. A little small. Really good crust. Their garlic bread and ravioli are really good too.
 
 [Uncle Vito's Menu](http://unclevitos.com/menu.html)
+
+<img src="http://pizzaparty.skyeillustration.com/unclevitos.jpg" height="100" />
 
 
 
@@ -69,6 +73,8 @@ Buffalo
 ##### Pizza Plant
 
 Pods. The greatest relative of the calzone ever to grace the planet. Restaurant god-tier. We could eat here every day.
+
+<img src="http://pizzaparty.skyeillustration.com/pizzaplant.jpg" height="100" /><img src="http://pizzaparty.skyeillustration.com/pizzapod.jpg" height="100" />
 
 
 
