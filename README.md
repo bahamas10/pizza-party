@@ -20,7 +20,7 @@ Gigantic slices that are covered in grease and are delicious. One slice is reall
 
 
 
-##### Amicis
+##### Amici's
 
 Brick oven pizza, lots of herbs and grease, very thin, blackened edge crispy crust. It's the closest to Flatbread that we've found, but expensive and the sauce is a minefield.
 
