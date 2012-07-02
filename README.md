@@ -44,8 +44,6 @@ Great pizza with excellent sauce, completely smooth, no chunks at all. A little 
 
 [Uncle Vito's Menu](http://unclevitos.com/menu.html)
 
-<img src="http://pizzaparty.skyeillustration.com/unclevitos.jpeg" height="100" />
-
 
 
 ##### Oregano's
