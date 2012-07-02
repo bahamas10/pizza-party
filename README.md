@@ -13,17 +13,18 @@ California
 Amazing cheese ravioli, small square shape. Their sauce has a weird aftertaste to it, but they sell frozen ravioli you can make at home and use your own sauce. Prego Traditional, Heart Smart Traditional, or Light Smart Traditional sauce is the best now that Healthy Choice is discontinued.
 
 
+
+##### New York Pizza
+
+Gigantic slices that are covered in grease and are delicious. One slice is really 2, and is enough to fill you up.
+
+
+
 ##### Amicis
 
 Brick oven pizza, lots of herbs and grease, very thin, blackened edge crispy crust. It's the closest to Flatbread that we've found, but expensive and the sauce is a minefield.
 
 <img src="http://pizzaparty.skyeillustration.com/amicis.jpg" width="100" />
-
-
-
-##### New York Pizza
-
-Gigantic slices that are covered in grease and are delicious. One slice is really 2, and is enough to fill you up.
 
 
 
@@ -35,6 +36,14 @@ Woodfired pizza. Don't trust the margharita name, just ask for cheese pizza. The
 
 
 
+##### Uncle Vito's
+
+Great pizza with excellent sauce, completely smooth, no chunks at all. A little small. Really good crust. Their garlic bread and ravioli are really good too.
+
+[Uncle Vito's Menu](http://unclevitos.com/menu.html)
+
+
+
 ##### Oregano's
 
 Almost no sauce, really flour-y dough, salty cheese. Small personal pizzas and slices. Their ravioli is also really good, but it's orange sauce.
@@ -43,15 +52,13 @@ Almost no sauce, really flour-y dough, salty cheese. Small personal pizzas and s
 
 ##### Pasta Market
 
-Same plaza as Oregano's, next door. We don't remember it very well..
+Same plaza as Oregano's, next door. Home made pasta. We don't remember it very well..
 
 
 
-##### Uncle Vito's
+##### Kingfish
 
-Great pizza with excellent sauce. A little small.
-
-[Uncle Vito's Menu](http://unclevitos.com/menu.html)
+Downtown San Mateo, mostly a wine place, a little fancier than most of our favorites. Home made pasta and their pizza are both good.
 
 
 
