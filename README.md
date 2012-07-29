@@ -72,7 +72,7 @@ Downtown San Mateo, mostly a wine place, a little fancier than most of our favor
 
 
 Buffalo
------------
+-------
 
 
 ##### Pizza Plant
