@@ -1,8 +1,9 @@
 pizza-party
 ===========
 
-A collection of restaurants that satisfy our weird eating habits
+![PIZZA PARTY](http://pizzaparty.skyeillustration.com/raviolihouse.jpeg)
 
+A collection of restaurants that satisfy our weird eating habits
 
 
 California
