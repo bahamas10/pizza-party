@@ -1,7 +1,7 @@
 pizza-party
 ===========
 
-![PIZZA PARTY](http://pizzaparty.skyeillustration.com/raviolihouse.jpeg)
+![PIZZA PARTY](http://pizzaparty.skyeillustration.com/pizza-party.gif)
 
 A collection of restaurants that satisfy our weird eating habits
 
